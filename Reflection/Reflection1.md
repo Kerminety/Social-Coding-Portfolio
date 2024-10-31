@@ -1,1 +1,1 @@
-For Activity 1
+Activity 1 I didn't do at first since I had no idea what was going on since the first class and the articles, I didn't think I could figure out how to do this class, it took a while but I've only started to get the hang of this, I think I made it even harder on myself when I stopped studying the material the Prof Muhlbaer showed. When I read Activity 2 I had a decent understanding of what it was talking about and that's when I started to look back at the material, then made it a bit easier to understand and do.
